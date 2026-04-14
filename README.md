@@ -1,6 +1,4 @@
 # RH
-Carreira Recursos Humanos (RH) - Alura 
-
-Nesta carreira eu aprendo de forma completa e desenvolvo habilidades para atuar desde processos operacionais até a liderança estratégica da área. E também utilizo domínio técnico, fluência em dados, habilidades humanas e visão de negócio para me destacar no mercado.
+𝖭𝖾𝗌𝗍𝖺 𝖼𝖺𝗋𝗋𝖾𝗂𝗋𝖺 𝖾𝗎 𝖺𝗉𝗋𝖾𝗇𝖽𝗈 𝖽𝖾 𝖿𝗈𝗋𝗆𝖺 𝖼𝗈𝗆𝗉𝗅𝖾𝗍𝖺 𝖾 𝖽𝖾𝗌𝖾𝗇𝗏𝗈𝗅𝗏𝗈 𝗁𝖺𝖻𝗂𝗅𝗂𝖽𝖺𝖽𝖾𝗌 𝗉𝖺𝗋𝖺 𝖺𝗍𝗎𝖺𝗋 𝖽𝖾𝗌𝖽𝖾 𝗉𝗋𝗈𝖼𝖾𝗌𝗌𝗈𝗌 𝗈𝗉𝖾𝗋𝖺𝖼𝗂𝗈𝗇𝖺𝗂𝗌 𝖺𝗍é 𝖺 𝗅𝗂𝖽𝖾𝗋𝖺𝗇ç𝖺 𝖾𝗌𝗍𝗋𝖺𝗍é𝗀𝗂𝖼𝖺 𝖽𝖺 á𝗋𝖾𝖺. 𝖤 𝗍𝖺𝗆𝖻é𝗆 𝗎𝗍𝗂𝗅𝗂𝗓𝗈 𝖽𝗈𝗆í𝗇𝗂𝗈 𝗍é𝖼𝗇𝗂𝖼𝗈, 𝖿𝗅𝗎ê𝗇𝖼𝗂𝖺 𝖾𝗆 𝖽𝖺𝖽𝗈𝗌, 𝗁𝖺𝖻𝗂𝗅𝗂𝖽𝖺𝖽𝖾𝗌 𝗁𝗎𝗆𝖺𝗇𝖺𝗌 𝖾 𝗏𝗂𝗌ã𝗈 𝖽𝖾 𝗇𝖾𝗀ó𝖼𝗂𝗈 𝗉𝖺𝗋𝖺 𝗆𝖾 𝖽𝖾𝗌𝗍𝖺𝖼𝖺𝗋 𝗇𝗈 𝗆𝖾𝗋𝖼𝖺𝖽𝗈.
 
 
